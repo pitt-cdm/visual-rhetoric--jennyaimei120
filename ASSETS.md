@@ -1,0 +1,1 @@
+## Credits for visual rhetoric 
